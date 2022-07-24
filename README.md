@@ -1,3 +1,3 @@
 # AntiBark
 
-Did your neighbors dog pisses you off? You arrive at right place.
+Did your neighbors dog piss you off? You arrive at right place.
